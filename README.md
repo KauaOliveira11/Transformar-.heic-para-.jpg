@@ -1,0 +1,1 @@
+# Transformar-.heic-para-.jpg
